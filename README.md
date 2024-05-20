@@ -1,3 +1,3 @@
-# MrUzair-MTX
-# Uzair Rajput 
-# Stupid inside 
+# S.R.K BRAND
+# TRICKS_BY_SAIIM
+# python S9IIMXD.py
